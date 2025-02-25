@@ -7,7 +7,6 @@
 <p>➥✅&nbsp;<strong>Rating: ★★★★☆ (4.5/5.0)</strong></p>
 <p>➥✅&nbsp;<strong>Side Effects: No Major Side Effects👇👇</strong></p>
 <p>➥✅&nbsp;<strong>Availability:&nbsp;<a href="https://supplecarts.com/forever-hemp-gummies-au-buy">In Stock Voted #1 Product in the AU</a></strong></p>
-<p>&nbsp;</p>
 <p>✅&nbsp;<strong><a href="https://supplecarts.com/forever-hemp-gummies-au-buy">Visit The Authority Site To Get Your Jug Now</a>&nbsp;✅</strong></p>
 <p>&nbsp;</p>
 <div class="separator"><a href="https://supplecarts.com/forever-hemp-gummies-au-buy" target="_blank" rel="nofollow"><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiWJW6nYn4LD4aEhdbVT3h2NUughH-hH6JGIOscu_XTiHg5A_OGVMJ9bPcohmRorGS1XoCE6aQ9jGOx0MMbcopD3VpEIIVr0Ht36f2WysFCOqMRcHkvsYyN6oKOJpyaulN_kYYJPSw3mpRrLPPjgkhG51vyk3XJqULGE8kHXt-O2BeXkmWezjnPlBd1aQcZ/w526-h354/472337941_122207089646218181_1582704485050526179_n.jpg" alt="" width="526" height="354" border="0" data-original-height="745" data-original-width="754" /></a></div>
